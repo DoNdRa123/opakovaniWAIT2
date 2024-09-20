@@ -1,1 +1,0 @@
-# opakovaniWAIT2
